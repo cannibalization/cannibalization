@@ -1,7 +1,7 @@
 <p align="center">
-<img src="https://github.com/user-attachments/assets/b013d778-ab62-4c5d-87d4-af38c6e62be7" />
+<img src="https://github.com/user-attachments/assets/bd3d2a47-0660-4970-8823-d8ad1c5217fb" width="300"  />
 </p>
 
 <p align="center">
-<b>male ★ 19 </b>
+<b>it ★ 19 </b>
 
