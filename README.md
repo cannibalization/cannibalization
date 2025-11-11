@@ -3,5 +3,5 @@
 </p>
 
 <p align="center">
-<b>it ★ 19 </b>
+<b>ITSELF 𖦹 HE </b>
 
